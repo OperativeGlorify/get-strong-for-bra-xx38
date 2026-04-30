@@ -1,4 +1,4 @@
-
+adopt me Script vip offers the most advanced adopt me Script, with silent aim and auto-sell. Perfect for dominating any match.
 
 
 
